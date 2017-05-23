@@ -64,3 +64,9 @@ The Sears bra: it is your shape
 
 Don't keep living in a salt-rock ghetto 
 
+Better ideas make us better cars 
+
+Deaf mute pile ups 
+
+he she whisky 
+
