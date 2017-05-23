@@ -36,3 +36,20 @@ Don't settle for nothing, trade up
 
 Less is more. Unless it's more. 
 
+It just goes. You shake your head. Where has all the money? 
+
+Former President is a grand old man. 
+
+Our product is we think cigars are somebody 
+
+Take it easy, friend! The fuse-less picnic is here! 
+
+Vegetable festival, minimal meat 
+
+This sauce doesn't sit here 
+
+Simmer out real flavor and replace them with ours! 
+
+Peanut butter helps build 12 strong bodies 
+
+Mezcal mascara: if you squint you can see Mexico 
