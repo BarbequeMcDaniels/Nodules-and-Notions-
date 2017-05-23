@@ -53,3 +53,14 @@ Simmer out real flavor and replace them with ours!
 Peanut butter helps build 12 strong bodies 
 
 Mezcal mascara: if you squint you can see Mexico 
+
+Lady golfs prose 
+
+Rhetoric vs Realty 
+
+Blind people don't know what bread is either 
+
+The Sears bra: it is your shape 
+
+Don't keep living in a salt-rock ghetto 
+
